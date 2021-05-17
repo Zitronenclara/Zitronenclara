@@ -1,4 +1,4 @@
-# UwU
+# | UwU | ![](https://komarev.com/ghpvc/?username=Zitronenclara&color=ff50ff&style=plastic&label=Profile+Boops)
 
 #### this is weird flex geez (idk what I'm doing here)
 
